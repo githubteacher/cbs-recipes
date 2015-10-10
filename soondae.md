@@ -3,5 +3,6 @@ Here's a short recipe
 - kill pig
 - cut open stomach
 - take out intestines
+- add dangmyun and pig blood
 - boil in hot water
 - eat
