@@ -5,7 +5,7 @@ Recipe for Parisian Brioche (one 4-inch / 10 cm base mold)
 Level ½ teaspoon dried yeast (or 5 g fresh yeast, equivalent to ¼ of a 0.7 oz. cake)
 ½ cup minus 1 tablespoon / 100 g eggs (2 large (US) or medium (UK) eggs
 ¼ cup / 60 ml milk
-1 stick plus 2 teaspoons / 125 g unsalted butter, room temperature
+1 stick plus 2 teaspoons / 115 g unsalted butter, room temperature
 For the egg wash
 1 egg
 2 tablespoons milk
