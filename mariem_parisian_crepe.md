@@ -1,0 +1,4 @@
+In a blender, combine flour, sugar, salt, milk, eggs, and butter.
+Puree until mixture is smooth and bubbles form on top, about 30 seconds. Let batter sit at least 15 minutes at room temperature (or refrigerate in an airtight container, up to 1 day; whisk before using).
+Heat a 12-inch nonstick skillet over medium. Lightly coat with butter. Add 1/3 cup batter and swirl to completely cover bottom of skillet. Cook until underside of crepe is golden brown, 2 to 3 minutes.
+Loosen edge of crepe with a rubber spatula, then with your fingertips, quickly flip. Cook 1 minute more. Slide crepe out of skillet and repeat with remaining batter. (Coat pan with butter as needed.)
