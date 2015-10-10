@@ -1,0 +1,4 @@
+- Water
+- Noodle
+- Seasoning
+- Eat
